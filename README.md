@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bhakti-palghadml
+- 👋 Hi, I’m @Bhakti-palghadmal
 
 
 
